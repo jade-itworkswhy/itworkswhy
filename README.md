@@ -1,0 +1,2 @@
+# itworkswhy
+ For lazy people
